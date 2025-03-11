@@ -5,6 +5,8 @@
 - 📫 How to reach me: email.
 - ⚡ Fun fact: Pokemon and gaming fan.
 
+Sup, Divy here! Or Hacke_025 Or Pokemon_025... Too many things to state but there is not enough space to express all that which is condensed within.
+
 <!---
 Hacke025/Hacke025 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
